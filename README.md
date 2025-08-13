@@ -19,7 +19,7 @@ The formula primarily works by:
 
 Max Boost XXL is available in Canada, though buyers should be cautious about where they purchase it to ensure they receive the legitimate product.
 
-→→→ [Click here for the latest Updated Season Sale 35% Discount Price.]([url](https://purehealthog.com/max-boost-xxl-canada-order/))
+→→→ [Click here for the latest Updated Season Sale 35% Discount Price.](https://purehealthog.com/max-boost-xxl-canada-order/)
 
 ### Benefits of Max Boost XXL
 
